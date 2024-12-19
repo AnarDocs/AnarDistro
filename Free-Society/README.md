@@ -8,19 +8,19 @@ I’ve created zine (booklet) versions of some of my article series below for an
 
 ### Radical Star Wars
 
-[Read eBook](Radical_Star_Wars-A5-Read.pdf) (40 pages) | Print Booklets - [U.S. Letter](Radical_Star_Wars-Letter-Colour-Booklet.pdf) | [A4](Radical_Star_Wars-A4-Colour-Booklet.pdf) | [Original Articles](https://peacefulrevolutionary.substack.com/p/star-wars-radical-origins)
+[Read eBook](Radical_Star_Wars-A5-Read.pdf) (40 pages) | Print Booklets - [U.S. Letter]([Radical_Star_Wars-Letter-Colour-Booklet.pdf](https://drive.google.com/file/d/1aD5yhxpEMymR_PcReQ_WgPw0VSAt7EcT/view?usp=share_link)) | [A4]([Radical_Star_Wars-A4-Colour-Booklet.pdf](https://drive.google.com/file/d/1PTbfs_rrtRIO4_2VRxLj1Hlg5QCkZp51/view?usp=share_link)) | [Original Articles](https://peacefulrevolutionary.substack.com/p/star-wars-radical-origins)
 
 Ever wondered how radical Star Wars really is? This zine dives deep into the revolutionary politics of the original ‘Star Wars’ movies and the ‘Andor’ TV series, exploring how these stories portray resistance against an authoritarian empire, even without space wizards and laser swords.
 
 ### Who Will Do The Dirty Jobs After The Revolution?
 
-Read eBook (30 pages) | Print Booklets - U.S. Letter | A4 | Original Articles
+[Read eBook](The_Plumbing_Problem-A5-Read.pdf) (30 pages) | Print Booklets - U.S. Letter | A4 | Original Articles
 
 This tackles the common argument used against anarchism: ‘Who would do the plumbing without capitalism?’ It systematically dismantles this critique by showing how plumbing and other ‘dirty jobs’ have historically been done without monetary incentives, from ancient civilisations to modern communes, and explains how capitalism has actually made plumbing and other dirty jobs worse.
 
 ### Dystopian World Survival Guide (draft)
 
-Read eBook (26 pages) | Print Booklets - U.S. Letter | A4 | Original Articles
+[Read eBook](Surviving_Dystopia-A5-Read.pdf) (26 pages) | Print Booklets - U.S. Letter | A4 | Original Articles
 
 An ultimately hopeful and practical guide for resisting authoritarianism, firstly exploring how people respond to oppressive regimes, and then providing concrete steps for building community resistance. Beginning with fostering individual moral courage, extending to strong community networks, and organising the people and skills that’ll be needed to resist or overthrow a fictional dystopian authoritarian state.
 
