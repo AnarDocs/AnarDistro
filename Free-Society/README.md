@@ -6,13 +6,31 @@ I’ve created zine (booklet) versions of some of my article series below for an
 
 ## Booklets
 
-### Radical Star Wars
+### Anarchy Is Love
+
+[Read eBook](Free-Society/Anarchy-Is-Love-A5-Read.pdf) (20 pages) | Print Booklets [(A4)](Anarchy-Is-Love-A4-Imposed.pdf) | [Original Articles](https://peacefulrevolutionary.substack.com/p/love-is-anarchist)
+
+This zine started as a joke. In a conversation with a friend I was making light of how a few right-wing commentators claim there is only freedom under capitalism, and I responded saying that idea was as absurd as believing that love can only exist under Anarchism. However, that has got me thinking ever since about where love might fit best within the spectrum of political ideologies.
+
+### Choose Your Own Utopia
+
+[Read eBook](Choose-Your-Own-Utopia-A5-Read.pdf) (28 pages) | Print Booklets [(A4)](Choose-Your-Own-Utopia-A4-Imposed.pdf) | [Original Article](https://peacefulrevolutionary.substack.com/p/choose-your-own-utopia)
+
+What would a better world look like to you? What would it feature? What would it be free from? What kind of people would be part of it? It can be fun to imagine an ideal vision of the future, and there are probably as many variations of what that looks like as there are people who might try to envision it. Here you will find a series of passages linked by choices that lead to different ideals. It is an imperfect attempt to gauge the kinds of values people have and where those lead as far as political ideologies and their consequences go.
+
+### Radical Star Wars (Andor The Anarchist)
 
 [Read eBook](Radical_Star_Wars-A5-Read.pdf) (40 pages) | Print Booklets - [U.S. Letter](https://drive.google.com/file/d/1aD5yhxpEMymR_PcReQ_WgPw0VSAt7EcT/view?usp=share_link) | [A4](https://drive.google.com/file/d/1PTbfs_rrtRIO4_2VRxLj1Hlg5QCkZp51/view?usp=share_link) | [Original Articles](https://peacefulrevolutionary.substack.com/p/star-wars-radical-origins)
 
 Ever wondered how radical Star Wars really is? This zine dives deep into the revolutionary politics of the original ‘Star Wars’ movies and the ‘Andor’ TV series, exploring how these stories portray resistance against an authoritarian empire, even without space wizards and laser swords.
 
-### Who Will Do The Dirty Jobs After The Revolution?
+### Resist The Ring
+
+[Read eBook](Resist-The-Ring-A5-Read.pdf) (36 pages) | [Original Articles](https://peacefulrevolutionary.substack.com/p/can-you-resist-the-ring)
+
+Can You Resist The Power Of The One Ring? This is a character test, a set of choices that determine what kind of person you might have been when faced with the temptation to wield the one ring of power from J.R.R. Tolkien’s Lord Of The Rings. With each choice you will learn more about what Tolkien was trying to teach the world about the costs of power over others and the dangers of using it.
+
+### Who Will Do The Dirty Jobs After The Revolution? (The Plumbing Problem)
 
 [Read eBook](The_Plumbing_Problem-A5-Read.pdf) (30 pages) | Print Booklets - [U.S. Letter](https://drive.google.com/file/d/11Q18DK04y1dJuSgsoWkWR4pM9yAr7jdg/view?usp=share_link) | [A4](https://drive.google.com/file/d/1sIC9fFs16580LON38k6cN0owe_7BRHJO/view?usp=share_link) | [Original Articles](https://peacefulrevolutionary.substack.com/p/who-will-do-the-dirty-jobs-after)
 
